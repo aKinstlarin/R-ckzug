@@ -1,4 +1,4 @@
-![Rückzug](IMG_20261015_165103.jpg)
+![Rückzug](IMG_20261015_165159.jpg)
 # Rückzug
 
 **Titel:** Rückzug
